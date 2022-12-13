@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jemiyoariyo75
 - 👀 I’m interested in programming and graphic design 
-- 🌱 I’m currently learning new rammes to add to my experience 
+- 🌱 I’m currently learning new programmes to add to my experience 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach m ....
 
